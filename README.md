@@ -1,3 +1,3 @@
-# recursos
+# RECURSOS #
 
 ## ACÁ IRÍAN LOS RECURSOS ##
