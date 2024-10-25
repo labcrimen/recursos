@@ -6,6 +6,8 @@
 
 ## Notas de radio
 
+[Mercado de trabajo e inserción laboral de ex privados de libertad -- Entrevista en Fácil Desviarse a Emiliano Tealde y Melissa Saavedra](https://delsol.uy/facildesviarse/entrevista/ex-presos-tienen-44-menos-chances-de-ser-contactados-para-un-trabajo)
+
 ## Podcasts y recursos educativos
 
 [Operativos Policiales y Criminalidad -- Podcast Proyecto ANII Cap 1](https://open.spotify.com/embed-podcast/episode/4iSZixMSIwlYZqURUt3XSS)
