@@ -10,6 +10,8 @@
 
 [Gobernanza criminal y microtráfico -- Entrevista en Fácil Desviarse a Verónica Pérez](https://delsol.uy/facildesviarse/entrevista/gobernanza-criminal-y-microtrafico-como-operan-las-bandas-en-montevideo)
 
+[¿Cómo operan las bandas de narcotráfico en Montevideo? -- Entrevista en En Perspectiva a Verónica Pérez](https://enperspectiva.uy/home/como-operan-las-bandas-que-se-dedican-a-la-venta-de-droga-en-montevideo-de-que-manera-buscan-afianzarse-en-los-barrios-donde-tienen-presencia-con-la-politologa-veronica-perez/)
+
 ## Podcasts y recursos educativos
 
 [Operativos Policiales y Criminalidad -- Podcast Proyecto ANII Cap 1](https://open.spotify.com/embed-podcast/episode/4iSZixMSIwlYZqURUt3XSS)
