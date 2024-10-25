@@ -2,7 +2,7 @@
 
 ## Notas de prensa
 
-[Mercado de trabajo y criminalidad urbanizada](https://ladiaria.com.uy/economia/articulo/2024/8/emiliano-tealde-la-criminalidad-urbanizada-deteriora-la-actividad-economica-y-el-mercado-laboral-uruguayo/)
+[Mercado de trabajo y criminalidad urbanizada -- Entrevista en La Diaria a Emiliano Tealde](https://ladiaria.com.uy/economia/articulo/2024/8/emiliano-tealde-la-criminalidad-urbanizada-deteriora-la-actividad-economica-y-el-mercado-laboral-uruguayo/)
 
 ## Notas de radio
 
