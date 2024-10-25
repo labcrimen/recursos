@@ -12,6 +12,10 @@
 
 [¿Cómo operan las bandas de narcotráfico en Montevideo? -- Entrevista en En Perspectiva a Verónica Pérez](https://enperspectiva.uy/home/como-operan-las-bandas-que-se-dedican-a-la-venta-de-droga-en-montevideo-de-que-manera-buscan-afianzarse-en-los-barrios-donde-tienen-presencia-con-la-politologa-veronica-perez/)
 
+[El desafío de la seguridad en el siglo XXI -- Entrevista en No Toquen Nada a Juan A. Bogliaccini](https://delsol.uy/notoquennada/ronda/el-desafio-de-la-seguridad-en-el-siglo-xxi-visto-desde-la-academia)
+
+[Crimen y narcotráfico -- Entrevista en Doble Click a Juan A. Bogliaccini](https://delsol.uy/dobleclick/entrevistas/no-se-logran-acuerdos-a-largo-plazo-cuando-hay-disputas-politicas-a-corto-plazo-afirmo-juan-bogliaccini)
+
 ## Podcasts y recursos educativos
 
 [Operativos Policiales y Criminalidad -- Podcast Proyecto ANII Cap 1](https://open.spotify.com/embed-podcast/episode/4iSZixMSIwlYZqURUt3XSS)
